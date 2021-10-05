@@ -1,2 +1,0 @@
-# het-maastrichtse-begrip
-alcohol zeikers
